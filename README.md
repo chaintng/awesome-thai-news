@@ -12,6 +12,7 @@
 - [สฤณี อาชวานันทกุล](https://www.facebook.com/SarineeA) - นักเขียน นักแปล นักวิจัย ผู้ติดตามและถ่ายทอดพัฒนาการใหม่ๆ ณ พรมแดนความรู้ทางเศรษฐศาสตร์ ธุรกิจ และพลังพลเมือง
 - [Jomquan](https://www.youtube.com/channel/UCzheDCNyul0tRvvoGycjz6A) - ชวนคุยเรื่องสังคมการเมืองให้ POP 
 ร่วมกันตั้งคำถามต่อประเด็นรอบตัวไปกับจอมขวัญ
+- [VoiceTV](https://www.youtube.com/user/VoiceTVHD) - สถานีโทรทัศน์แนวคิดใหม่ที่มุ่งเน้นการรายงานข่าวสารและความเคลื่อนไหวล่าสุดจากทุกมุมโลก
 - [การเมืองไทย สายก้าวหน้า](https://twitter.com/i/lists/1318005269809434624) - Twitter List รวบรวม Account ที่เผยแพร่ข่าวสารการเมืองไทย สาย Progressive
 
 # กลุ่ม Conservative
@@ -20,6 +21,7 @@
 - [เชียร์ลุง](https://www.facebook.com/CheerLungThailand) - เพจเชียร์ลุง "รักชาติ ศาสน์ กษัตริย์"
 - [Thailand FACT Today](https://www.facebook.com/TFACTD) - 
 เพจเพื่อนำเสนอข้อมูลข่าวสารสถานการณ์ในไทยที่ถูกต้อง มีแหล่งอ้างอิงชัดเจน
+- [Top News](https://www.youtube.com/channel/UCneS5JrD0vl6dhqs7FCZKCA) - ช่อง TOP NEWS พลังแห่งความจริง คือที่สุดของข่าวสาร เราอยู่ในมือคุณ เราอยู่ล้อมรอบตัวคุณ
 
 # สรุปประเด็น
 - [Poetry of Bitch](https://www.facebook.com/poetryofb) - Page ที่สรุปประเด็นดราม่า ที่เกิดขึ้นอย่างละเอียด รวบรวมข้อเท็จจริงเรียงเป็น Timeline ง่ายต่อการทำความเข้าใจ
